@@ -41,6 +41,6 @@ Transformation & Growth Advisory · AI-Powered Marketing & Growth Strategy · En
 
 ## 📫 Connect
 
-- Digital Card: [dot.cards/saif3li](https://dot.cards/saif3li)
+- Digital Card: [dot.cards/saif](https://dot.cards/saif)
 - Email: saif3li.phd@gmail.com
 - 📍 Jeddah, Saudi Arabia
